@@ -1,1 +1,0 @@
-# portofolio2LSP
